@@ -4,4 +4,4 @@ Delayed Gratification
 
 Do not let things own you
 - Success is accepting failure, embracing it and then overcoming it
-- 
+- You have to learn to lose things, and let go ego.
