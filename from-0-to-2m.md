@@ -11,6 +11,9 @@ Do not let things own you
 
 Find a purpose
 - What problem are you going to solve when you grow up? ( We should be asking these questions to the kids. )
-- 
+- Think about what problems that affected you so often?
+- May be a small problem, but you have to find those.
+- Break down the problem, and think how you can make his life better.
+- **Often this is seen that, an individual's life is only 3% different than their dreams. That's why it's important to dream big. Dream bigger.**
 
 
